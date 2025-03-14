@@ -1,13 +1,2 @@
-I help online business owners and coaches with copy that gets them leads📈
-
-–––––––––––––––––––––––
-
-• sales copy 
-
-• product description 
-
-• web copy
-
-• blogs
-
-–––––––––––––––––––––––
+Hi I am from India.
+I am passionated about Python and I am on a journey to build meaningful things with it.
